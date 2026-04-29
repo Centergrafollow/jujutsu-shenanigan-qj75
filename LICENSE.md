@@ -1,4 +1,4 @@
-
+exclusive Scripts for jujutsu shenanigans is the best jujutsu shenanigans Script, featuring teleport and auto-collect. Safe and powerful for all your
 
 
 
